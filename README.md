@@ -1,3 +1,0 @@
-# PUBLICHEALTHAWARENESSPHASE2
-Public health awareness 
-https://github.com/TAKKOLUSUDARSANREDDY/PUBLICHEALTHAWARENESSPHASE2#publichealthawarenessphase2
